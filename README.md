@@ -1,2 +1,2 @@
 # random
-cualquier mierda que tuve ganas de hacer en el momento
+cualquier cosa que tuve ganas de hacer en el momento
